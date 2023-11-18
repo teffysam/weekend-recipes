@@ -1,23 +1,23 @@
 Biriyani Masala: 
 https://youtu.be/ubbPNezv-qw?si=pEV9aoHyjxdGL7Mu
 
-1 tsp vegetable oil
-2 nos  Kashmiri Red Chilli
-5 nos Bay Leaf
-2 tbsp Coriander Seeds
-1 tbsp Cumin Seeds
-3 blades of Mace
-2 inch Cinnamon Stick
-1 whole Nutmeg
-1 tsp Cloves
-3 nos Black Cardamom
-3 nos Star Anise
-10 nos Green Cardamom
-1 tbsp Black Peppercorns
-1/4 cup fresh Mint Leaves
-1 tsp Fennel Seeds
-½ tsp Turmeric
-1 pinch Saffron
++ 1 tsp vegetable oil
++ 2 nos  Kashmiri Red Chilli
++ 5 nos Bay Leaf
++ 2 tbsp Coriander Seeds
++ 1 tbsp Cumin Seeds
++ 3 blades of Mace
++ 2 inch Cinnamon Stick
++ 1 whole Nutmeg
++ 1 tsp Cloves
++ 3 nos Black Cardamom
++ 3 nos Star Anise
++ 10 nos Green Cardamom
++ 1 tbsp Black Peppercorns
++ 1/4 cup fresh Mint Leaves
++ 1 tsp Fennel Seeds
++ ½ tsp Turmeric
++ 1 pinch Saffron
 
 Dehydrate the mint leaves on warm pan, add that to rest of toasted spices along with turmeric and safron and blend.
 
